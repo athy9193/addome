@@ -14,4 +14,6 @@ As at 12 May 2020, in my opinion, there are five main areas/missions in life tha
     5.3) Read: 20 books (harvard, classics, odysses)
     5.4) Draw: arts appreciation
     5.5) Architecture: Interior, space creation
+    5.6) Music: classical, piano, pop, indies (Timothee Chalamet)
+    
     
